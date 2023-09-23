@@ -1,1 +1,1 @@
-# nabila nft profiles picture
+# nabila nft profile picture
